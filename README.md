@@ -1,5 +1,5 @@
 
-- 📫 How to reach me: virtualassistance.py@gmail.com
+- 📫 How to reach me: cdhamande.swe@gmail.com
 - 😄 Pronouns: He/Him
 
 
